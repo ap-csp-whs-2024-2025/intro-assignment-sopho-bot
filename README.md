@@ -12,4 +12,4 @@
 Answer the questions below
 * Something interesting about me is I have never been stung by a bee. 
 * Ask Mr. Vu anything: Why did you shave your head?
-* List your sports and extracurriculars you participate in
+* List your sports and extracurriculars you participate in: key club, merits, red cross, vacc, dance club, cso, ocde, fansi, ofis, oscef, explora, nanovation
